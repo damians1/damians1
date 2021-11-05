@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @damians1 24 year self-taught SEO and web programm3r.
+- 👋 Hi, I’m @damians1 self-taught SEO and web programm3r since Summer of 1998
 - 👀 I’m interested in SEO,b-movies,NFT,reading,biking,camping,house music and techno. Futurist,
 - 🌱 I’m currently learning new things that motivate me ot be a better perosn.
 - 💞️ I’m looking to collaborate on SEO, web developnet, NFT, Blockchain
